@@ -7,5 +7,5 @@ Just some simple boiler-plate templates to speed up quick prototype development:
 
 
 
-http://bit.ly/1oyqmFL
+http://ge.tt/6DL7usj1/v/0?c
 
